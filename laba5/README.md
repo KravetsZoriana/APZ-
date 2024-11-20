@@ -1,0 +1,3 @@
+16.16.65.197
+ZHSiyXp=9O=daNp%75sGAa5WeNrE.LDW
+Лаба 5
